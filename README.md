@@ -36,7 +36,7 @@ All templates are carefully selected to help you create amazing Blogger sites wi
 ## Join Our Telegram Channel
 Stay updated with new templates, updates, and tips!
 
-👉 [Join Telegram Channel]([https://t.me/Free_BloggerTemplates])
+👉 [Join Telegram Channel](https://t.me/Free_BloggerTemplates)
 
 ---
 
